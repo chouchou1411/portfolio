@@ -1,2 +1,2 @@
 # portfolio
-đọc đi
+đọc đi cc
